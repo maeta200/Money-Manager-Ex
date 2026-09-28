@@ -217,4 +217,4 @@ Money Manager Ex is the full free version, offering all features and updates wit
 Take your financial management to the next level with Money Manager Ex – download now and start controlling your economy effortlessly!
 
 ---
-**Last updated:** 2026-09-27 23:42:30 UTC
+**Last updated:** 2026-09-28 03:52:26 UTC
